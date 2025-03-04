@@ -113,4 +113,5 @@ MvfeXKUbSA+J+L5CiAzs4QBHJ093FYwbR9b0AVtLQ8qlIODHrUW3zcA+9R2NN81G/akIJFYGiV4J
 U3qGwLZhNAkrNud5JU5/uVEmnF1Dvzv4roqu3DcFa6RebKAktnuMxjAyPuhYidHut31SjPzmPzxx
 Bqc85OEV5fP/FA==
 
-If retarded, ignore. If not, I want in.
+If retarded, ignore. If not, I want in. Open air is retarded similar to synapses. There is a `cheap` way to do all these things. Ignore the lyrics137.
+
