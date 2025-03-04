@@ -103,4 +103,4 @@ mOdRw94G3WPqVFLIrnpUado5v5YlUQvtSrCTTJvyg6LlQ3CHKfYLoh8bxWeL1lG0aCZS+RQmgF16
 7JnFtXdqVCKcJ3C3450gwHZHeD6uYhHB7sQ42BqjvznuZ9Uf39Qpy5hqgSBYfCHekpBgohxjDWVf
 dSvAi7Kgs24bI9n8G/HKA0Rg
 
-Edit: Or retarded ;-). Perhaps there already exists HAZOP for attack but then, if I am not rtarded [_;_] then why are there so many _generally_ undiscovered ways.
+Edit: Or retarded ;-).
